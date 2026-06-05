@@ -8,7 +8,7 @@
 
 ✦ ; [𝐝𝐢𝐧𝐨 !! (𝐥𝐮𝐤𝐚 𝐥𝐨𝐯𝐞𝐬 𝐲𝐨𝐮,,,, 𝐬𝐡𝐞 𝐭𝐨𝐥𝐝 𝐦𝐞 /𝐬𝐢𝐥𝐥𝐲)](https://github.com/tunafishyy) *ੈ✩‧₊˚
 
-✦ ; [𝐦𝐲 𝐝𝐚𝐮𝐠𝐡𝐭𝐞𝐫 !! (𝐚𝐢𝐫𝐢 𝐥𝐨𝐯𝐞𝐬 𝐲𝐨𝐮)](https://github.com/zippytie) ⋆｡‧˚ʚ ୨ৎ ɞ˚‧｡⋆
+✦ ; [𝐳𝐢𝐩𝐩𝐲 !! (𝐚𝐢𝐫𝐢 𝐥𝐨𝐯𝐞𝐬 𝐲𝐨𝐮)](https://github.com/zippytie) ⋆｡‧˚ʚ ୨ৎ ɞ˚‧｡⋆
 
 ✦ ; [𝐤𝐚𝐭𝐬𝐮 !! (𝐒𝐓𝐎𝐏 𝐌𝐀𝐊𝐈𝐍𝐆 𝐎𝐒𝐀𝐆𝐄 𝐒𝐊𝐈𝐍𝐒 𝐈𝐌𝐂𝐑𝐘𝐈)](https://github.com/sakasamagirlfeeling) 𐙚⋆°｡⋆♡
 
