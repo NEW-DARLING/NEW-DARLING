@@ -4,6 +4,11 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7B3BC&width=435&lines=run+rabbit%2C+run+rabid..;gifts+granted%2C+you've+gone+rancid..;run+rabbit%2C+run+rabid..;walls+padded%2C+drinking+acid..)](https://git.io/typing-svg) <img width="20" height="20" alt="1000027066" src="https://github.com/user-attachments/assets/12d0bdff-f6ca-460e-be7e-ff64ce590f0a" />
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31io6pzcf2kzovdy3ldzrygdzpam&cover_image=true&theme=natemoo-re&show_offline=true&background_color=f57f9b&interchange=false&profanity=false&hide_remaster=false&bar_color=fab1be&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31io6pzcf2kzovdy3ldzrygdzpam&redirect=true)
+
+*(i actually use soundcloud more but whatever who cares)*
+
+
 [ցմղs.lօl](https://guns.lol/ribbonyunyun) ᰔ [թɾօղօմղs.թαցҽ](https://en.pronouns.page/@__D0GGIE.M1ZU) ᰔ [թɾօղօմղs.cc](https://pronouns.cc/@dolitamia) ᰔ [αԵαճօօk](https://tangleduplove.atabook.org/) ᰔ [sԵɾαաթαցҽ](https://rulerofherheart.straw.page/) 
 
 
